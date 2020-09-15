@@ -1,1 +1,1 @@
-# Bernoulli-principle.github.io
+# https://parth-k-d.github.io/Bernoulli-principle.github.io/
